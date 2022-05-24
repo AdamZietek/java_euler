@@ -1,1 +1,0 @@
-napisane na kartce
